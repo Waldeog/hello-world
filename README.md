@@ -7,3 +7,6 @@ Tampere, Finland
 Tampere University of Technology
 Industrial Engineering and Management
 
+Harrastukset: kuntosali, laskettelu, pelaaminen
+
+
